@@ -13,4 +13,4 @@ We reserve the right to stop you from using Wonyoung if we believe that you are 
 
 # Contant
 
-You can contact us in our discord server at https://discord.com/gkh9Th38F8
+You can contact us in our discord server at https://discord.gg/gkh9Th38F8
